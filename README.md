@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @nattuggla
+- 👀 I’m basically just a lurker. Not much of a coder, but I do enjoy playing around with others code and being as naughty as possible with it. :>
+- 📫 I am also at weidel.se.
